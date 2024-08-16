@@ -6,7 +6,7 @@
 
 - 💞️ 50度灰回家邮箱，发送任意信息到邮箱 50du.dx0005@gmail.com 即可收到最新下载地址
 
-- 📫 50度灰 官方TG：  https://T.me/PZVID
+- 📫 50度灰 官方TG：  https://T.me/chuangzuo50dh
 
 - 😄 50度灰 官方土豆：https://pt9.app/DH500
 
